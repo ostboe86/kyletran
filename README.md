@@ -1,2 +1,2 @@
 # kyletran
-a studious, regal, fucking animal
+start up think tank
